@@ -1,0 +1,1 @@
+![scren.png](..%2F..%2Fscren.png)
